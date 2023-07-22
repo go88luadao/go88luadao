@@ -1,16 +1,13 @@
-### Hi there 👋
+### Go88 Lừa Đảo
 
-<!--
-**go88luadao/go88luadao** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+GO88 lừa đảo, thắng bị khoá tài khoản không cho rút tiền có thật không? 
 
-Here are some ideas to get you started:
+Hiện nay có không ít các nguồn tin cho rằng nếu Go88 không thực sự bị sập thì nhà cái này cũng có hành vi lừa đảo, khiến cho rất nhiều người chơi hoang mang lo sợ. Go88 đang sử dụng một trong những công nghệ bảo mật chống hack và chống gian lận mạnh
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+https://iwinios.link/game/go88-lua-dao/
+
+https://www.behance.net/go88lao/info
+
+https://www.flickr.com/people/198784553@N03/
+
+https://vi.gravatar.com/go88luadao
